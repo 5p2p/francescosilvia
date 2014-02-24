@@ -49,7 +49,7 @@ Quando ancora non stavamo insieme, ciascuno di noi, attraverso strade e modalit�
 Due cose erano chiare in noi: la volontà di seguire Cristo e il desiderio di capire come seguirlo.
 Ci siamo incontrati per la prima volta a Foligno presso il Monastero di S.Anna, casa delle suore della Beata Angelina, dove entrambi frequentavamo un gruppo giovanile vocazionale guidato dal Vescovo Gualtiero e da Don Dante Cesarini, chiamato Gruppo Jordan. E’ nata subito una bellissima amicizia, che ha avuto modo di crescere e approfondirsi grazie alle tante esperienze vissute insieme, tra cui il servizio nella Pastorale Giovanile e la Giornata Mondiale della Gioventù a Madrid nel 2011. Decisivo è stato il cammino dei “Dieci Comandamenti”, che ha fatto maturare ancor di più la nostra fede e trasformare l’amicizia in amore. Il fidanzamento è stato un tempo prezioso, dove ognuno di noi ha potuto continuare il proprio percorso di discernimento, approfondendo ancora di più la conoscenza di se stesso e dell’altro.
 
-## MATRIMONIO FRANCESCANO
+## MATRIMONIO FRANCESCANO1
 
 Abbiamo scelto di organizzare il nostro matrimonio in spirito francescano, ovvero all’insegna della semplicità, senza sprechi e senza stress (per quanto possibile), soffermandoci a preparare con cura la cerimonia, l’anima nostra e quella di chi vi parteciperà, senza dimenticarci di chi è meno fortunato di noi.
 Ma “matrimonio francescano” non significa limitarsi alla sola fase organizzativa dell’evento, bensì cercare di seguire come coppia e come famiglia uno stile di vita sulle orme di San Francesco e Santa Chiara. 
