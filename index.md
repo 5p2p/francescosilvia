@@ -60,6 +60,7 @@ Il nostro desiderio più grande è fare e accogliere sempre la Volontà di Dio s
 
 ---
 
+
 Grazie di cuore per il sostegno e l'affetto che ci avete sempre dimostrato... lo prova anche il fatto che avete avuto la pazienza di leggere tutto fino a questo punto! :-)
 La vostra presenza sarà per noi il regalo più grande.
 
